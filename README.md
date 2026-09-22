@@ -40,7 +40,7 @@
 
 ✦ i can be mentally ill sometimes, like paranoid/anxious/depressive/dissociative and it does affect how i act. so take it seriously if i use iwc or something like that, it's there for a reason :]
 
-✦ lowkey i can be kinda rude if u are a fellow kin of bucky or bruce or share the name b. idk im just rlly protective over those things and unless ur the one person i'm normal with any of that with (cough cough moony) then just beware
+✦ lowkey i can be kinda rude if u are a fellow kin of bucky or bruce or share the name b. idk im just rlly protective over those things and unless ur a close friend just beware
 
 ✦ i take like EVERYTHING seriously. im not gonna beg for tone tags, but i might miss a joke sometimes and react poorly
 <br>
