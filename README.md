@@ -11,7 +11,7 @@
     <img src="https://img.shields.io/badge/STRAWPAGE-4FA7A7?style=for-the-badge&labelColor=2F3E46" alt="strawpage">
   </a>
   &nbsp;
-  <a href="https://leftinthecold.atabook.org">
+  <a href="https://pointblank.atabook.org">
     <img src="https://img.shields.io/badge/ATABOOK-4FA7A7?style=for-the-badge&labelColor=2F3E46" alt="atabook">
   </a>
   &nbsp;
